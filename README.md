@@ -15,3 +15,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 Estudiante de Ingenieria en Coputacion
+![Badge](https://bit.ly/icom-badge)
