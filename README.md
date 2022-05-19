@@ -14,4 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+Estudiante de Ingenieria en Coputacion
+![Badge](https://bit.ly/icom-badge)
+
 Estudiante de Ingenieria en Computacion
+
