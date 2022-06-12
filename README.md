@@ -1,4 +1,4 @@
-### ↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓
+###                         ↓:D↓
 ![Komi](https://c.tenor.com/DBqXXNQkF28AAAAd/komi-san.gif)
 
 Estudiante de Ingenieria en Computacion 
