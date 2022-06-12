@@ -20,4 +20,4 @@ Estudiante de Ingenieria en Coputacion
 
 Estudiante de Ingenieria en Computacion
 
-![Alt Text](https://tenor.com/es/ver/komi-san-anime-swing-gif-23851465)
+![Alt Text](https://c.tenor.com/DBqXXNQkF28AAAAd/komi-san.gif)
